@@ -21,4 +21,4 @@
 
 >>龜山鄉
 
-[![Everything Is AWESOME](https://images.app.goo.gl/FvmVH1wrqh55LtQF8 "Everything Is AWESOME")
+
